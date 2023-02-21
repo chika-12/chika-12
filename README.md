@@ -6,10 +6,15 @@ I’m currently learning software engineering
 
 I’m looking to collaborate on many projects
 
-How to reach me : www.markworship001@gmail.com
+How to reach me :
+www.markworship001@gmail.com
+
 https://www.linkedin.com/in/chika-mark-524544240/
+
 https://web.facebook.com/chika.mark.393/
+
 https://www.instagram.com/chika.mark/
+
 https://twitter.com/MarkFlame16
 
 
