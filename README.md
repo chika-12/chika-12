@@ -1,10 +1,10 @@
-Hi, I’m @chika-12
+I am Chika Mark a software engineering students at ALX, Microverse.
 
-I’m interested in software engineering and teaching.
+I’m interested in teaching, machine learning, cloud computing and Data science.
 
 I’m currently learning software engineering
 
-I’m looking to collaborate on many projects
+Looking forward to collaborate
 
 How to reach me :
 www.markworship001@gmail.com
