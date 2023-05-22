@@ -16,4 +16,3 @@ https://web.facebook.com/chika.mark.393/
 https://www.instagram.com/chika.mark/
 
 https://twitter.com/MarkFlame16
-You can click the Preview link to take a look at your changes.
